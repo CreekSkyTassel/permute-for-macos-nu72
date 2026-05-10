@@ -1,4 +1,4 @@
-
+Permute for macOS custom Script: format-conversion & metadata-editing offers the most advanced Permute for macOS script, with format-conversion and metadata-editing. Ideal for
 
 
 
